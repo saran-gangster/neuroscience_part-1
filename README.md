@@ -19,7 +19,7 @@ All your organs, all your physiological and psychological reactions, even your b
 other major controlling force, the endocrine system, bows down before the nervous system.
 There is no “you” without it. There is no “me” without it. There’s no dogs
 without it. There’s no animals. There’s no -- there’s no things -- there’s things.
-It’s important. That’s why we’re dedicating the next several episodes to the fundamentals
+It’s important. That’s why i dedicating the next several lesson to the fundamentals
 of the nervous system -- its anatomy and organization, how it communicates, and what happens when
 it gets damaged.
 This is mission control, people!
