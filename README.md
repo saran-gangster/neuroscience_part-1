@@ -167,4 +167,291 @@ and functionally, and how everything plays out when you find a spider crawling o
 \
 --Thanks for reading\
 \
-Want to read more [check this out](https://github.com/saran-gangster/neuroscienceofConsciousness/blob/master/README.md)
+Want to read more [check this out](https://github.com/saran-gangster/neuroscienceofConsciousness/blob/master/README.md)\
+– Main Source: the book Minimal Selfhood and the Origins of Consciousness by Rupert Glasgow, and discussions with the Author :
+
+
+
+You can download the book for free here:
+
+http://nbn-resolving.org/urn:nbn:de:bvb:20-opus-157470
+
+https://www.academia.edu/37069229/Minimal_Selfhood_and_the_Origins_of_Consciousness
+
+
+
+If physical books spark joy in your life get the paperback version here:
+
+https://www.amazon.co.uk/gp/product/3958260780?pf_rd_p=71cb17e9-f468-4d3f-94d5-a0de44c50a7e&pf_rd_r=81PQH7Z0TY58QTCZVEM4
+
+
+
+i want to thank the following experts for their feedback and valuable input:
+\
+
+\
+Felipe De Brigard
+Assistant Professor in the Department of Philosophy
+\
+Core Faculty, Center for Cognitive Neuroscience
+\
+\
+\
+Christof Koch, Ph.D.
+Chief Scientist & President of the Allen Institute for Brain Science
+\
+Sources:
+
+\
+– Consciousness allows us to be aware of our surroundings and of our own inner state.
+\
+#Consciousness, 2004
+
+https://plato.stanford.edu/entries/consciousness/#ConCon
+\
+\
+\
+– Philosophers and scientists struggle to define consciousness.
+\
+#Consciousness, 2004
+\
+https://plato.stanford.edu/entries/consciousness/#ConCon
+\
+\
+\
+#What Is Consciousness?, 2018
+
+https://www.scientificamerican.com/article/what-is-consciousness/
+
+
+
+– Our consciousness is likely to have evolved from less complex forms, as a product of evolution. 
+\
+ #Minimal Selfhood and the Origins of Consciousness, 2018
+\
+http://nbn-resolving.org/urn:nbn:de:bvb:20-opus-157470
+\
+\
+\
+#The Physical Evolution of Consciousness, 2018
+\
+https://www.psychologytoday.com/us/blog/finding-purpose/201807/the-physical-evolution-consciousness
+\
+\
+\
+– Some panpsychists claim that a lump of rock may have an inner life.
+\
+#Panpsychism, 2017 [2001]
+\
+https://plato.stanford.edu/entries/panpsychism/#DefiPanp
+\
+\
+\
+– A living thing, or a self, is a part of the universe that sustains itself and makes more of its kind.
+\
+#A Universal Definition of Life: Autonomy and Open-Ended Evolution, 2004 [2002]
+
+https://link.springer.com/article/10.1023/B:ORIG.0000016440.53346.dc
+\
+\
+\
+#Life's Working Definition: Does It Work?, 2007
+\
+https://www.nasa.gov/vision/universe/starsgalaxies/life%27s_working_definition.html
+\
+\
+\
+#What Are the Ten Characteristics of Living Organisms?, 2018
+\
+https://sciencing.com/ten-characteristics-living-organisms-8119158.html
+\
+\
+\
+– The original function of consciousness was probably to direct a mobile self that was short of energy to a fresh supply of food.
+\
+#Evolution of consciousness: Phylogeny, ontogeny, and emergence from general anesthesia, 2018
+\
+https://www.pnas.org/content/110/Supplement_2/10357#ref-52
+\
+\
+\
+– Trichoplax adhaerens moves around haphazardly.
+\
+#Coordinated Feeding Behavior in Trichoplax, an Animal without Synapses, 2015
+\
+https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0136098
+\
+\
+\
+– Take Dugesia tigrina, a tiny worm known for its funny face.
+\
+#Girardia tigrina, 2019
+\
+https://en.wikipedia.org/wiki/Girardia_tigrina#cite_note-Ball74-1
+\
+\
+\
+– When starved for a while, it will move itself in the direction of tasty things.
+\
+#Regulation of the Feeding Behavior of the Planarian Dugesia (Girardia) tigrina, 2002 [2001]
+\
+https://www.researchgate.net/publication/226650185_Regulation_of_the_Feeding_Behavior_of_the_Planarian_Dugesia_Girardia_tigrina
+\
+\
+\
+– With vision comes a sense of the space we and our food exist in.
+\
+#The evolutionary and genetic origins of consciousness in the Cambrian Period over 500 million years ago, 2013
+\
+https://www.frontiersin.org/articles/10.3389/fpsyg.2013.00667/full
+\
+\
+\
+#Eyes on the prize: the evolution of vision, 2016
+\
+http://www.nhm.ac.uk/discover/eyes-on-the-prize-evolution-of-vision.html
+\
+\
+\
+– To visualize food, a self needs to create some sort of inner representation of the world.
+\
+#The 2014 Nobel Prize in Physiology or Medicine with one half to John O’Keefe and the other half jointly to May-Britt Moser and Edvard I. Moser for their discoveries of cells that constitute a positioning system in the brain, 2014
+\
+https://www.nobelprize.org/prizes/medicine/2014/press-release/
+\
+\
+\
+– The ability to remember things has emerged.
+\
+#Decisions and the Evolution of Memory: Multiple Systems, Multiple Functions, 2002
+\
+https://philpapers.org/archive/KLEP-8.pdf
+\
+\
+\
+#The Evolution of Memory Systems: Ancestors, Anatomy, and Adaptations, 2016\
+\
+https://books.google.de/books?id=7XB4DQAAQBAJ&pg=PT27&lpg=PT27&dq=memory+evolution&source=bl&ots=wFkQI-PU3D&sig=ACfU3U0VSS9VxVZM988iXgv0j76JIFGAdA&hl=de&sa=X&ved=2ahUKEwi3-tq0hZPgAhVKKlAKHVizDzg4ChDoATADegQIBhAB#v=onepage&q=memory%20evolution&f=false
+
+
+
+– A related phenomenon is called ‘object permanence’.\
+\
+#APA Dictionary of Psychology: object permanence, 2018\
+\
+https://dictionary.apa.org/object-permanence
+\
+\
+\
+– Humans develop this ability at eight months; baby chickens within a day or two of being born.\
+\
+#Thinking chickens: a review of cognition, emotion, and behavior in the domestic chicken, 2017\
+\
+https://link.springer.com/article/10.1007%2Fs10071-016-1064-4
+\
+\
+\
+– A sense of time is a big step on the ladder of consciousness.\
+\
+#Temporal Consciousness, 2010\
+\
+https://plato.stanford.edu/entries/consciousness-temporal/#TimCon
+\
+\
+\
+– Adult chickens can resist a meal, if they expect a bigger meal as prize for holding back for a while.\
+\
+#Can domestic fowl, Gallus gallus domesticus, show self-control?, 2005 [2004]\
+\
+https://www.sciencedirect.com/science/article/pii/S0003347205000412
+\
+\
+\
+– Western scrub jays are experts in delayed gratification.\
+\
+#Planning for the Future by Western Scrub-Jays, 2007\
+\
+https://www.researchgate.net/publication/6490918_Planning_for_the_Future_by_Western_Scrub-Jays\
+\
+\
+\
+#The Control of Food-Caching Behavior by Western Scrub-Jays (Aphelocoma californica), 2007\
+\
+https://www.researchgate.net/publication/5919876_The_Control_of_Food-Caching_Behavior_by_Western_Scrub-Jays_Aphelocoma_californica
+\
+\
+\
+– The scrub jays will even re-hide their food if they become aware that a potential thief has been watching them.\
+\
+#Social cognition by food-caching corvids. The western scrub-jay as a natural psychologist, 2007\
+\
+https://www.ncbi.nlm.nih.gov/pubmed/17309867
+\
+\
+\
+#Corvid Re-Caching without ‘Theory of Mind’: A Model, 2012\
+\
+https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0032904
+\
+\
+\
+– Crafty scrub jays can sort of ‘read the mind’ of their fellow birds.\
+\
+#Social cognition by food-caching corvids. The western scrub-jay as a natural psychologist, 2007\
+\
+https://royalsocietypublishing.org/doi/10.1098/rstb.2006.1992
+\
+\
+\
+#Corvid Re-Caching without ‘Theory of Mind’: A Model, 2012\
+\
+https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0032904
+\
+Comment: The latter source claims, that scrub jays might not be able to 'read the mind' of their fellow birds and they just rehide their food because of stress. But since this theory is based on a computer model we can't tell if this assumption is correct. Further evidence is needed. Anyway the scrub jay is able to realize that there is a competitor bird and therefore changes it's behaviour. It can predict that its food is not safe near others, so we think the 'read the minds'-claim is not wrong.\
+\
+\
+\
+– Language takes the ability to read minds and represent what is absent to a whole new level.\
+\
+#The evolution of language, 1999\
+\
+https://www.pnas.org/content/96/14/8028
+\
+\
+\
+\
+\
+\
+\
+Further reading:\
+\
+\
+\
+– Western scrub jays could be able to think about thinking.\
+\
+#Western Scrub Jays Are Capable of Metacognition, 2014\
+\
+https://www.scientificamerican.com/article/western-scrub-jays-are-capable-of-metacognition/
+\
+\
+\
+– Language can influence the ability to “read minds”.\
+\
+#Ability to Guess Others' Thoughts Tied to Language Proficiency, 2009\
+\
+https://www.scientificamerican.com/article/language-skills-and-reading-minds/
+\
+\
+\
+#How the Language We Speak Affects the Way We Think, 2017\
+\
+https://www.psychologytoday.com/us/blog/the-biolinguistic-turn/201702/how-the-language-we-speak-affects-the-way-we-think
+\
+\
+\
+– The science of language.\
+\
+#Review of "The science of language: Interviews Interviews with James McGilvray, 2015\
+\
+https://www.researchgate.net/publication/299483845_Review_of_The_science_of_language_Interviews_Interviews_with_James_McGilvray_By_N_C
+
