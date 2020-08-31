@@ -165,4 +165,6 @@ and functionally, and how everything plays out when you find a spider crawling o
 
 \
 \
---Thanks for reading
+--Thanks for reading\
+\
+Want to read more [check this out](https://github.com/saran-gangster/neuroscienceofConsciousness/blob/master/README.md)
