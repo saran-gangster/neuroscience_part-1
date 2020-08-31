@@ -186,7 +186,7 @@ https://www.amazon.co.uk/gp/product/3958260780?pf_rd_p=71cb17e9-f468-4d3f-94d5-a
 
 
 
-i want to thank the following experts for their feedback and valuable input:
+i want to thank the following experts for their feedback and valuable input for this blog:
 \
 
 \
